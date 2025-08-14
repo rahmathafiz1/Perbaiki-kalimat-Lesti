@@ -1,1 +1,0 @@
-# Perbaiki-kalimat-Lesti
